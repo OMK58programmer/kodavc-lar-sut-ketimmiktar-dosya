@@ -1,0 +1,1 @@
+# kodavc-lar-sut-ketimmiktar-dosya
